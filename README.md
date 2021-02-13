@@ -1,2 +1,3 @@
 ### Hi there 👋  
-⚡ Whats up?
+⚡ Whats up?  
+You can also call me Delta_Rain, Galaxy, or BlackTyphoon266
